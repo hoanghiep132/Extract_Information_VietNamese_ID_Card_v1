@@ -1,0 +1,1 @@
+# Extract_Information_VietNamese_ID_Card_v1
